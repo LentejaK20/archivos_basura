@@ -1,2 +1,7 @@
 # archivos_basura
 lol
+
+
+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
+
+https://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@github.com/LentejaK20/rec_exa.git
